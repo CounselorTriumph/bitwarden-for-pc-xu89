@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://CounselorTriumph.github.io/bitwarden-for-pc-xu89/ ) |
  |---------------------|----------------------:|
 
 
